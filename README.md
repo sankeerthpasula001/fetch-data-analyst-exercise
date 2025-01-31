@@ -42,4 +42,4 @@ The key documents in this repository correspond to different sections of the exe
 - Highlight trends and propose next steps.  
 
 ## **Contact**  
-For any questions, reach out to sankeerthpasula2024@gmail.com or 9452160533. Thank you. **.  
+For any questions, reach out to sankeerthpasula2024@gmail.com or 9452160533. Thank you.  
